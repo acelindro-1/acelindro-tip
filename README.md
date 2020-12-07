@@ -1,5 +1,5 @@
 ### Welcome!
-Alvene Abuda Celindro
+Alvene Celindro
 4th Year
 Watching Anime and Playing Online Games
 qacelindro@tip.edu.ph
